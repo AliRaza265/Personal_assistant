@@ -1,0 +1,1 @@
+An AI-based assistant designed to help solve your problems can be described as a virtual problem-solving companion that uses artificial intelligence to understand your needs, provide solutions, and guide you through challenges in various areas of life or work. 
